@@ -2,7 +2,7 @@ Privacy Policy for Pizza Puppy
 
 Last updated: August 31, 2026
 
-Pizza Puppy is developed by Soup Fork Studios LLC.
+Pizza Puppy is developed by SoupFork Studios LLC.
 
 Data collection
 
